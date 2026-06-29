@@ -1,4 +1,4 @@
-#  
+#  anime card clash elite Scripts is the best anime card clash Script, featuring auto-farm and anti-ban. Safe and powerful for all your needs.
 
 
 
